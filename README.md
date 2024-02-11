@@ -1,1 +1,1 @@
-# paintings-of-amorsolo
+# fernando amorsolo paintings, history, awards
